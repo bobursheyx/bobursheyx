@@ -1,0 +1,6 @@
+- 👋 Assalomu alaykum mening ismim Boburjon
+- 👀 Men beckend dasturchiman
+- 🌱 Men bilan telegram orqali bog'lanish - https://t.me/bobursheyh07
+- 💞️ Men bilan gmail orqali boglanish - olponovboburjon2@gmail.com
+- 📫 Men bilan telefon orqali boglanish - +998888371771
+- 😄 Hozircha ishsizman😀😁
